@@ -4,8 +4,11 @@
 # CONTACT DETAILS
 
 **Email: prabhjotkaur70368@gmail.com**
+
 **LinkedIn : www.linkedin.com/in/prabhjot24**
+
 **Contact no.: 9646340113**
+
 **Address: Kalakh Majri Road,Dehlon(Ldh.)**
 
 # CAREER OBJECTIVES:
@@ -15,20 +18,31 @@
 # ACADEMIC DETAILS 
 
  *Higher Education:* **B.Tech Information Technology** 
+ 
    *Intitution:* **Guru Nanak Dev Engineering College Ludhiana**
+   
  *Senior Secondary Education:* **Science(Non Medical)**
+ 
    *Institution:* **Govt Sen Sec Smart School Dehlon**
-
+  
 # SPECIAL ABILITIES/ SKILLS
 
-  **Quick Learner**                      **Punctual**
-  **Good Communicater**                  **Multi tasking**
+  **Quick Learner**                      
+  
+  **Punctual**
+  
+  **Good Communicator**    
+  
+  **Multi tasking**
+  
   **Problem Solving** 
 
 # INTEREST
 
   **Reading Books (Educational, Motivational)**
+  
   **Sports (Badminton, Running)**
+  
   **Drawing**
   
                    
