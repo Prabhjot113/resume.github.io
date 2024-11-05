@@ -10,14 +10,14 @@
 
 # CAREER OBJECTIVES:
 
-**A highly organized and hardworking individual looking for a responsible position to gain practical experience in information technology engineering. Aims to be associated with progressive organization which offers atmosphere to prove myself by utilizing all technical knowledge into practice and with experience and valuable knowlwdge for the development and growth of the organization .
+**A highly organized and hardworking individual looking for a responsible position to gain practical experience in information technology engineering. Aims to be associated with progressive organization which offers atmosphere to prove myself by utilizing all technical knowledge into practice and with experience and valuable knowlwdge for the development and growth of the organization** .
 
 # ACADEMIC DETAILS 
 
- *Higher Education:***B.Tech Information Technology** 
-   *Intitution:***Guru Nanak Dev Engineering College Ludhiana**
- *Senior Secondary Education:***Science(Non Medical)**
-   *Institution:***Govt Sen Sec Smart School Dehlon**
+ *Higher Education:* **B.Tech Information Technology** 
+   *Intitution:* **Guru Nanak Dev Engineering College Ludhiana**
+ *Senior Secondary Education:* **Science(Non Medical)**
+   *Institution:* **Govt Sen Sec Smart School Dehlon**
 
 # SPECIAL ABILITIES/ SKILLS
 
