@@ -13,11 +13,11 @@
 
 # CAREER OBJECTIVES:
 
-**A highly organized and hardworking individual looking for a responsible position to gain practical experience in information technology engineering. Aims to be associated with progressive organization which offers atmosphere to prove myself by utilizing all technical knowledge into practice and with experience and valuable knowlwdge for the development and growth of the organization** .
+**IT graduate eager to start a career in software engineering while nurturing a long-term ambition is to serve as an IPS officer.**
 
 # ACADEMIC DETAILS 
 
- *Higher Education:* **B.Tech Information Technology** 
+ **Bachelor of Technology in Information Technology** 
  
    *Intitution:* **Guru Nanak Dev Engineering College Ludhiana**
    
